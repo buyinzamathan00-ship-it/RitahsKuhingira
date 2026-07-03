@@ -1,2 +1,2 @@
 # RitahsKuhingira
-Ritah.. site 3
+Ritah's Introduction 
